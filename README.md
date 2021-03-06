@@ -23,3 +23,10 @@ Yoga for better sleep
 * https://www.sleepadvisor.org/yoga-for-sleep/
 * https://somuchyoga.com/best-yoga-poses-for-better-sleep/
 * https://www.yogajournal.com/poses/15-poses-help-sleep-better/
+
+Surya Namaskar 
+* https://www.youtube.com/watch?v=wsfG1eQ-tac
+
+
+Tadasna
+* https://www.youtube.com/watch?v=t4EFxQDhA8A 
